@@ -4,9 +4,26 @@
 
 -Kỹ năng:
 Ngoại ngữ: IELTS 7.0 |
-Tin học: Thành thạo Microsoft Office, kỹ năng lập trình cơ bản. |
-Giao tiếp và làm việc nhóm hiệu quả. |
--Tư duy logic và giải quyết vấn đề. |
+Tin học: Thành thạo Microsoft Office, kỹ năng lập trình cơ bản |
+Giao tiếp và làm việc nhóm hiệu quả |
+Tư duy logic và giải quyết vấn đề. 
+
+Sở thích:
+
+Lập trình và học công nghệ mới.
+
+Đọc sách, học ngoại ngữ.
+
+Tham gia các hoạt động cộng đồng.
+
+
+Hoạt động ngoại khóa:
+
+Thành viên CLB tiếng Anh OEC (UIT) với vai trò là thành viên trong team Methia (team kỹ thuật).
+
+Tham gia chương trình thiện nguyện "Xuân Ấm Tình Thương" do trường THPT Đông Du tổ chức.
+
+ 
 - 📫 How to reach me **24521857@gm.uit.edu.vn**
 
 <h3 align="left">Connect with me:</h3>
