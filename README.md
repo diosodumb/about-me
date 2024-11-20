@@ -8,7 +8,7 @@ Tin học: Thành thạo Microsoft Office, kỹ năng lập trình cơ bản |
 Giao tiếp và làm việc nhóm hiệu quả |
 Tư duy logic và giải quyết vấn đề. 
 
-Sở thích:
+-Sở thích:
 
 Lập trình và học công nghệ mới.
 
@@ -17,7 +17,7 @@ Lập trình và học công nghệ mới.
 Tham gia các hoạt động cộng đồng.
 
 
-Hoạt động ngoại khóa:
+-Hoạt động ngoại khóa:
 
 Thành viên CLB tiếng Anh OEC (UIT) với vai trò là thành viên trong team Methia (team kỹ thuật).
 
